@@ -14,7 +14,7 @@
 
 📫 Reach out to me:
 - Email: visal.sem@student.cadt.edu.kh
-- 
+- Personal Email: visal8779@gmail.com
 🌱 "Learning never stops!" 
 
 Thanks for stopping by! 😄
